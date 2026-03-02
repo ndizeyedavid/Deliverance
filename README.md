@@ -26,3 +26,5 @@ Deliverance is not just revenge.
 It is redemption.
 
 Evil was loud. Deliverance was stronger.
+
+# A work by Jolly & David
